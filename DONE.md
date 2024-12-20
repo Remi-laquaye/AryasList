@@ -1,0 +1,1 @@
+- Joffrey Baratheon : Mort par empoisonnenement lors d'un banquet (pas Arya qui a empoisonné)
