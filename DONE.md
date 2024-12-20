@@ -1,1 +1,2 @@
 - Joffrey Baratheon : Mort par empoisonnenement lors d'un banquet (pas Arya qui a empoisonné)
+- Meryn Trant : Tué par Arya alors qu'il attaquait son maitre
